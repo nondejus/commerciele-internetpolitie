@@ -1,2 +1,2 @@
 # commerciele-internetpolitie
-abonnement volledige internet blockade van de nedlandse staat
+abonnement volledige internet blockade van de nederlandse politiestaat
